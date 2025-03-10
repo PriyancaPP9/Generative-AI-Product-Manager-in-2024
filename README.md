@@ -1,2 +1,2 @@
 # Generative-AI-Product-Manager-in-2025
-What it all takes to become AI PM in 2024 ....
+
